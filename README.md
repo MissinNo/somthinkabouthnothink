@@ -1,1 +1,1 @@
-# somthinkabouthnothink.github.io
+# somthinkaboutnothink
